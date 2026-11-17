@@ -337,3 +337,51 @@
 - 第55章页面正文在西蒙控制并扭曲慧魔身体后截断。
 - 第50章正文可见到白啸云与萧临讨论第四天和剩余三天；第51—54章也存在页面片段边界，报告仅采用已显示内容。
 - 本批来源均为转载镜像，后续仍优先寻找可核验的首发/授权文本。
+
+
+## 第一卷第56—65章来源（2026-11-17）
+
+65. 第56章《永不停息》
+    https://www.canghaishuge.com/quanqiugaowuwoqueshijiurizhizhu/56.html
+    用途：击毙西蒙化身、白啸云雷霆击败异族之王、西蒙追加第八天故事。
+
+66. 第57章《雨停之时》
+    https://www.canghaishuge.com/quanqiugaowuwoqueshijiurizhizhu/57.html
+    用途：第八天危机、执法队感染、白啸云死亡与雨停。
+
+67. 第58章《重现》
+    https://www.canghaishuge.com/quanqiugaowuwoqueshijiurizhizhu/58.html
+    用途：黑伞载体、萧临重现无形之雨、袭击西蒙化身。
+
+68. 第59章《打破边界》
+    https://www.canghaishuge.com/quanqiugaowuwoqueshijiurizhizhu/59.html
+    用途：狂宴之主登场、权柄无效、深空之瞳攻击、雷霆重现。
+
+69. 第60章《第二次入梦》
+    https://www.canghaishuge.com/quanqiugaowuwoqueshijiurizhizhu/60.html
+    用途：十七道雷霆、狂宴之主死亡、故事结构消散、白啸云葬礼。
+
+70. 第61章《各自的决定》
+    https://www.canghaishuge.com/quanqiugaowuwoqueshijiurizhizhu/61.html
+    用途：林念念记忆加密、赵凝月代理关系、蓝龙矿业遗产。
+
+71. 第62章《算计》
+    https://www.canghaishuge.com/quanqiugaowuwoqueshijiurizhizhu/62.html
+    用途：西蒙失败后的处境、哲人之家拿出活化内脏。
+
+72. 第63章《和谈》
+    https://www.canghaishuge.com/quanqiugaowuwoqueshijiurizhizhu/63.html
+    用途：萧临拒绝和解、4月15日暴雨死亡预告。
+
+73. 第64章《故人》
+    https://www.canghaishuge.com/quanqiugaowuwoqueshijiurizhizhu/64.html
+    用途：杨奇身份揭示、萧临第一代超凡者身份公开、正义城登场。
+
+74. 第65章《旧事》
+    https://www.canghaishuge.com/quanqiugaowuwoqueshijiurizhizhu/65.html
+    用途：第三次世界大战成因、杨奇谋杀岳泰州的动机、萧临继承遗志。
+
+### 本批正文完整性说明
+- 本批10章均可从该镜像读取到章节结尾；第56—65章标题与目录一致。
+- 第65章关于第三次世界大战、杨奇参与谋杀岳泰州等历史信息来自杨奇的回忆和自述，报告已标明叙述者，不能无条件视为全知叙述。
+- 镜像站声明内容来自网络，属于转载来源；后续仍应寻找首发或授权文本交叉核验。
