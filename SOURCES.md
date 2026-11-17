@@ -435,3 +435,53 @@
 - 第67章白色球体的来源和本质仍未解释；杨奇受到的恐惧攻击是已确认现象。
 - 第75章关于认知之门“死门”的判断来自陈宗山陈述，属于红境超凡者的认知；尚不能据此断言绝对无法通过。
 - 镜像为转载站点，后续仍应优先寻找首发或授权文本交叉核验。
+
+
+## 第一卷第76—85章来源（2026-11-17）
+
+85. 第76章《退出》
+    https://www.canghaishuge.com/quanqiugaowuwoqueshijiurizhizhu/76.html
+    用途：陈宗山退出刺杀、行政中心抗议、白兰广场清场、言兴现身。
+
+86. 第77章《就职演讲》
+    https://www.canghaishuge.com/quanqiugaowuwoqueshijiurizhizhu/77.html
+    用途：萧临悼念白啸云、就职纲领、楚心许宁秦野袭击与死亡。
+
+87. 第78章《湖之主》
+    https://www.canghaishuge.com/quanqiugaowuwoqueshijiurizhizhu/78.html
+    用途：叶谭水镜空间、水怪围困、萧临水下反击。
+
+88. 第79章《言兴》
+    https://www.canghaishuge.com/quanqiugaowuwoqueshijiurizhizhu/79.html
+    用途：言兴身体异化、适应性能力、抵抗深空之瞳和雷霆。
+
+89. 第80章《月亮》
+    https://www.canghaishuge.com/quanqiugaowuwoqueshijiurizhizhu/80.html
+    用途：言兴升空、萧临短距离突进追击。
+
+90. 第81章《围杀》
+    https://www.canghaishuge.com/quanqiugaowuwoqueshijiurizhizhu/81.html
+    用途：言兴死亡、围猎者争功与互相戒备。
+
+91. 第82章《在暴雨中》
+    https://www.canghaishuge.com/quanqiugaowuwoqueshijiurizhizhu/82.html
+    用途：萧临追杀劫持平民及试图逃离暴雨的超凡者。
+
+92. 第83章《灭亡于黎明》
+    https://www.canghaishuge.com/quanqiugaowuwoqueshijiurizhizhu/83.html
+    用途：最后一名围猎者死亡、云泽城伤亡统计。
+
+93. 第84章《教育意义》
+    https://www.canghaishuge.com/quanqiugaowuwoqueshijiurizhizhu/84.html
+    用途：西蒙新器官改造副作用、钥匙计划、莉莉将被总部带走。
+
+94. 第85章《后续计划》
+    https://www.canghaishuge.com/quanqiugaowuwoqueshijiurizhizhu/85.html
+    用途：红境超凡者几乎被萧临清空、筹备面向超凡者的会议。
+
+### 本批正文完整性说明
+- 第76—85章标题与目录一致；第76—83章正文主要情节可见到章节尾部。
+- 第84章页面正文当前可见至钢琴家告知西蒙萧临清空红境超凡者；后续部分未在当前页面文本中完整显示。
+- 第85章页面当前可见内容确认萧临要求召开会议、红境仅余萧临/西蒙/陈宗山等信息；后续计划细节需继续补核。
+- 言兴的半机械心脏在第81章被萧临持有，后续是否作为关联物/力量来源仍待确认。
+- 本批来源为转载镜像，仍需优先寻找首发/授权正文交叉核验。
