@@ -510,3 +510,53 @@
 - 第88章的巨蛛是红境深红云层起源的判断来自萧临对现场的观察；“是否与疯人之嚎的外壳为同一实体”仍属推断。
 - 第89章直接承接第88章战场，故不能仅以第88章作为正式卷尾依据；还需核对后续章节或原作分卷信息。
 - 本批正文来自转载镜像，仍需优先寻找首发/授权文本交叉核验。
+
+
+## 第89—98章来源（2026-11-17）
+
+99. 第89章《天灾化身》
+    https://www.canghaishuge.com/quanqiugaowuwoqueshijiurizhizhu/89.html
+    用途：姜谜出现、认知之门为过去留影、巨蛛循环与村庄介绍。
+
+100. 第90章《对峙》
+     https://www.canghaishuge.com/quanqiugaowuwoqueshijiurizhizhu/90.html
+     用途：零一、村庄生活秩序、婴儿象征、萧临拒绝留下。
+
+101. 第91章《空无一物啊》
+     https://www.canghaishuge.com/quanqiugaowuwoqueshijiurizhizhu/91.html
+     用途：宁素提供巨蛛权能情报、想为孩子离开、姜谜立场。
+
+102. 第92章《无意义的战术》
+     https://www.canghaishuge.com/quanqiugaowuwoqueshijiurizhizhu/92.html
+     用途：关联物舍弃顺序、萧临发现巨蛛权能无法伤害自己。
+
+103. 第93章《奇异生物》
+     https://www.canghaishuge.com/quanqiugaowuwoqueshijiurizhizhu/93.html
+     用途：腕足生物登场、电浆枪攻击、与卫星镇异形描述呼应。
+
+104. 第94章《逆向》
+     https://www.canghaishuge.com/quanqiugaowuqueshijiurizhizhu/94.html
+     用途：慧魔信息处理、读心矩阵逆向精神污染、白金巨剑贯穿巨蛛。
+
+105. 第95章《判断》
+     https://www.canghaishuge.com/quanqiugaowuqueshijiurizhizhu/95.html
+     用途：萧临质疑通关规则、腕足生物残肢、零一的推断。
+
+106. 第96章《蜘蛛》
+     https://www.canghaishuge.com/quanqiugaowuqueshijiurizhizhu/96.html
+     用途：腕足生物作为破局关键、姜谜宁素贺恩加入。
+
+107. 第97章《破局计划》
+     https://www.canghaishuge.com/quanqiugaowuqueshijiurizhizhu/97.html
+     用途：研究所样本分析、深空之瞳入门媒介方案、赵凝月历史回忆、林念念任务。
+
+108. 第98章《暗流涌动》
+     https://www.canghaishuge.com/quanqiugaowuqueshijiurizhizhu/98.html
+     用途：蓝时雨与林念念准备进入大荒野、哲人之家思想派与执行派历史。
+
+### 本批正文完整性说明
+- 第89—92章、第95—98章可读取到主要章节结尾或关键段落。
+- 第93—94章页面正文可见范围未覆盖全部结尾，报告只记录可见战斗过程，不推断后续结果。
+- 第95章末尾关于金属立方体核心的解释未完整显示；不将其后续答案写成事实。
+- 第98章转载目录止于该章，但正文仍有明确未完行动线，不能据此判断原作卷尾。
+- 本批来源均为转载镜像，仍需寻找原作完整目录与正式分卷标记。
