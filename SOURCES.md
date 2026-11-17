@@ -385,3 +385,53 @@
 - 本批10章均可从该镜像读取到章节结尾；第56—65章标题与目录一致。
 - 第65章关于第三次世界大战、杨奇参与谋杀岳泰州等历史信息来自杨奇的回忆和自述，报告已标明叙述者，不能无条件视为全知叙述。
 - 镜像站声明内容来自网络，属于转载来源；后续仍应寻找首发或授权文本交叉核验。
+
+
+## 第一卷第66—75章来源（2026-11-17）
+
+75. 第66章《是非对错》
+    https://www.canghaishuge.com/quanqiugaowuwoqueshijiurizhizhu/66.html
+    用途：杨奇与萧临分道、岳泰州解释三战不介入决策、对研究所主战派的怀疑。
+
+76. 第67章《梦呓平原之战》
+    https://www.canghaishuge.com/quanqiugaowuwoqueshijiurizhizhu/67.html
+    用途：正义城与白色球体交战、强制恐惧与杨奇创伤回忆。
+
+77. 第68章《钟暮》
+    https://www.canghaishuge.com/quanqiugaowuwoqueshijiurizhizhu/68.html
+    用途：蓝龙矿业内部困境、董事会与行政中心的退让方案、千年虫黑色界面猜测。
+
+78. 第69章《红狼》
+    https://www.canghaishuge.com/quanqiugaowuwoqueshijiurizhizhu/69.html
+    用途：曦月车站、红狼、荒野车队规则、刺杀蓝龙矿业新总裁的委托。
+
+79. 第70章《蓝灾》
+    https://www.canghaishuge.com/quanqiugaowuwoqueshijiurizhizhu/70.html
+    用途：钢琴曲预警、蓝灾吞噬车辆与人体、萧临开始救援。
+
+80. 第71章《逃出灾难》
+    https://www.canghaishuge.com/quanqiugaowuwoqueshijiurizhizhu/71.html
+    用途：萧临修复客车、抵抗蓝灾、陈宗山解释蓝灾图腾柱。
+
+81. 第72章《示威》
+    https://www.canghaishuge.com/quanqiugaowuwoqueshijiurizhizhu/72.html
+    用途：深空之瞳摧毁六座图腾柱、蓝灾消退、萧临拒绝深红军团邀请。
+
+82. 第73章《欢迎来到云泽城》
+    https://www.canghaishuge.com/quanqiugaowuwoqueshijiurizhizhu/73.html
+    用途：哲人之家分析萧临不死特性、钢琴家蓝灾计划失败、西蒙新器官改造。
+
+83. 第74章《萧临的谋划》
+    https://www.canghaishuge.com/quanqiugaowuwoqueshijiurizhizhu/74.html
+    用途：萧临拒绝秘密撤离、公开直播计划、认知之门晋升谋划。
+
+84. 第75章《告知》
+    https://www.canghaishuge.com/quanqiugaowuwoqueshijiurizhizhu/75.html
+    用途：现实层级渗透机制、蓝灾与认知之门的关系、死门规则、直播准备。
+
+### 本批正文完整性说明
+- 第66—75章均可从该镜像读取到章节结尾。
+- 第66章杨奇家乡遭研究所主战派袭击是萧临与岳泰州提出的推测，不是正文确认事实。
+- 第67章白色球体的来源和本质仍未解释；杨奇受到的恐惧攻击是已确认现象。
+- 第75章关于认知之门“死门”的判断来自陈宗山陈述，属于红境超凡者的认知；尚不能据此断言绝对无法通过。
+- 镜像为转载站点，后续仍应优先寻找首发或授权文本交叉核验。
